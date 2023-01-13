@@ -17,11 +17,3 @@
 ![image](https://user-images.githubusercontent.com/113675674/212359327-29db38ed-f4ee-4206-99db-3413c364b472.png)  
 
 
-## Задача 7  
-
-
-## Задача 8  
-
-
-## Задача 9    
-
